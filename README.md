@@ -1,4 +1,4 @@
-# AmanDhimanD.github.io### Hi there 👋, I'm [Aman](https://github.com/Aman-dhiman2) 👨‍💻
+Hi there 👋, I'm [Aman](https://github.com/Aman-dhiman2) 👨‍💻
 
 <br/>
 
